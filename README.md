@@ -1,2 +1,5 @@
-# dreadserver.github.io
-Dreadserver Productions - Music Videos and Events
+# dreadserver.com
+
+Dreadserver Productions - Music, Videos and Events. Web, T.V. Radio. 
+http://dreadserver.com
+
